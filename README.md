@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Renatodavid
+- 👀 I’m interested in  aprender cada dia mais e mais!!
+- 🌱 I’m currently learning , Git_Github
+- 💞️ I’m looking to collaborate on ajudar  a comunit ,e crescer cada dia mais
+- 📫 How to reach me ...  meu linkedin ##https://www.linkedin.com/in/renato-marques-david-2b04051a2         
+-   https://www.instagram.com/eu.renatomarques/ 
